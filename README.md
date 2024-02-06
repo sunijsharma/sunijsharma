@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @sunijsharma
 - 👀 I’m interested in coding, music and languages
-- 🌱 I’m currently learning japanese, korean and python
+- 🌱 I’m currently learning japanese, spanish and python
 - 📫 How to reach me - sharmasunij27@gmail.com
